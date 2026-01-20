@@ -5,8 +5,11 @@
 Email Me 👉 ✉️ raisakshi2306@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
 💬 Ask me about: Tech Support
+
 📫 How to reach me: raisakshi2306@gmail.com
+
 😄 Pronouns: Sakshi
+
 ⚡ Fun fact: I Love Tech and Tech Love Me
 highly involved in open source 
 
